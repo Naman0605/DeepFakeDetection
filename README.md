@@ -1,3 +1,3 @@
 DEEPFAKE DETECTION PROJECT
 
-My namr is naman h
+My namr is naman (drop)
